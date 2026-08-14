@@ -43,4 +43,4 @@ better viewed on **pc** .
 
 ![Untitled246_20260814173631](https://github.com/user-attachments/assets/6a9c677d-fd15-485a-88ab-4092439139d2)
 
-^ avery art by neverthe.l3ss
+> ^ avery art by neverthe.l3ss
